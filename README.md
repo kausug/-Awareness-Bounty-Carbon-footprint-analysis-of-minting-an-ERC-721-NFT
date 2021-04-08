@@ -7,5 +7,12 @@ To reduce the impact of energy consumption arising from the cryptographic transa
 Another alternative is to diversify with recycling companies, organic waste, non-organic waste, plastics and other waste discarded by humans.
 
 Cheapening the cost of energy is very important to form a direct impact on measures aimed at cryptocurrencies. Using renewable energy is getting better and better.
+
 ![pdfone](/images/logo.png)
 Format: ![Alt Text](https://cdn.howmuch.net/costGuides/cost-of-trees-planting-medium-8da6.jpg)
+
+![pdftwo](/images/logo.png)
+Format: ![Alt Text](https://www.solarexpertsindia.com/wp-content/uploads/2018/07/solar-gurgaon-india-advantage-Experts-Benefits.jpg)
+
+![pdftwo](/images/logo.png)
+Format: ![Alt Text](https://thumbnails-visually.netdna-ssl.com/benefits-of-recycling_548ff727ba2ae_w1500.jpg)
